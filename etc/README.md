@@ -1,2 +1,0 @@
-# God terrifies me
-videogame
